@@ -8,4 +8,4 @@
 
 ## Employment
 
-## [LinkedIn](https://linkedin.com/in/justin-dominguez-8912b319)
+## [LinkedIn](https://www.linkedin.com/in/justin-dominguez-8912b3191/)
