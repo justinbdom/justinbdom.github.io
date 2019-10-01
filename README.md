@@ -1,6 +1,13 @@
-# JustinBDominguez
+# Justin B Dominguez
 
-## current projects
+## Career Objectives
 
-* test project 1
-* test project 2
+## Current Projects
+
+* [Macros Calculator](macros-calculator)
+
+## Education
+
+## Employment
+
+## [LinkedIn](https://linkedin.com/in/justin-dominguez-8912b319)
