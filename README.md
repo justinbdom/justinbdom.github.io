@@ -1,5 +1,3 @@
-# Justin B Dominguez
-
 ## Career Objectives
 
 ## Current Projects
